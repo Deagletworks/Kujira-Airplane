@@ -121,10 +121,12 @@ Kindle Unlimitedならほぼ無料で〜！
 
 「神の銀河」一億Σ聖記：GALAXY-QubitGrace-Biblia 源母星編α1~5
 
-(!https://link.amazon/B04wErt6h)
+!https://link.amazon/B04wErt6h
 
 🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀
 
 💫⭐️〜🔱〜⚜️〜⭐️👑⭐️〜⚜️〜🔱〜⭐️💫
 
 〜　💕Saints&Ark Great Again💕過去/現在/未来💫　
+
+
