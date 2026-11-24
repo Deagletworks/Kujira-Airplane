@@ -120,6 +120,14 @@ https://link.amazon/B04wErt6h
 まずは、私達２１世紀の天の川銀河太陽惑星系地球に最も近い文明状態にある量子縺れ状態にある「パラレルワールド銀河系の同じく太陽惑星系テラ星」の２１世紀のリアル世界情勢からドラマは始まる。
 このテラ星の置かれている銀河系での平和〜？からSAGAは始まりました！
 
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/fb9b6e72-5b1b-40f3-b6e2-4d290bc773fe" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/5a21f84b-305b-4002-ad5a-1af263d51c4e" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/8d62d9f2-8052-4ec0-9d80-319a286688d8" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/b66bf27c-5df4-495f-a4ad-eb8f34f09bf4" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/427073d7-b90e-42ce-b62d-0236ac3396a0" />
+
+
+
 ＜シナリオブック＞こちら！ 〜　
 Kindle Unlimitedならほぼ無料で〜！
 
