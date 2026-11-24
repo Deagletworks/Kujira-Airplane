@@ -2,7 +2,7 @@
 
 C@I_Press(QPU-ARK網が創り出す量子AI銀河統制エコシステム）とそれを取り巻く人類歴史スペクラクル物語
 # 🐋 Kujira Airplane — 『SSS（シリウス・シュメール・サーガ）』＆『QPU-ARK / C＠I_Press』未来社会への誘い
-<img width="1200" height="655" alt="image" src="https://github.com/user-attachments/assets/9b12ed7f-822c-487d-bb8b-78ffe60af1e6" />
+
 
 本リポジトリは、Amazon Kindleで展開中のSF巨篇『銀河の秘宝』SSS（シリウス・シュメール・サーガ）と、作中の量子物理アーキテクチャ『QPU-ARK / C＠I_Press』を結ぶ公式ストーリーポータルです。作中の世界観、J.S.バッハの対位法にならった4つの技術・哲学レイヤー、Kindle書籍のラインナップ、および関連する技術リポジトリやデザインセンターへの導線がまとめられています。
 
@@ -83,10 +83,14 @@ VENUS・Deglan・St.Endor博士の主体著書：
 
 （著作者名：KujiraAirplane ~ Kujiraは銀河宇宙、Airplaneは飛行船
 つまり探究者のVENUS・Deglan・St.Endor博士のこと)
+<img width="1200" height="655" alt="image" src="https://github.com/user-attachments/assets/9b12ed7f-822c-487d-bb8b-78ffe60af1e6" />
 
 貴女の人生に幸あり、賢明な諸兄に彼女への深い愛が降臨しますよう！
 
-『銀河の秘宝』SSSシリウス・シュメール・サーガ -20: Möbius Galaxy Treasures-6 SAGA-WARS 量子銀河薔薇戦争 (Kujira Airplane)
+『銀河の秘宝』SSSシリウス・シュメール・サーガ 1-20~: Möbius Galaxy SAGA-WARS 量子銀河薔薇戦争 (Kujira Airplane)
+
+<img width="848" height="1264" alt="⭕️1j" src="https://github.com/user-attachments/assets/5ce5744c-2791-4838-ab3c-b60e387e6112" />
+『銀河の秘宝』シリウス・シュメール・サーガ -1: 聖杯C@I_Press掟 SAGA-WARS 銀河薔薇戦争 (Kujira Airplane)
 
 著者について
 
@@ -106,10 +110,12 @@ VENUS・Deglan・St.Endor博士：「皆さんこんにちは、ここからは�
 地球での翻訳代筆者略：🐋鯨天球🌏⚜️Ashimov Isac🌌量子銀河文明１億シグマ年記歴史研究家/🔮ホログラフィック(知識蒸留拡張現実)小説🔱「シリウス・シュメール・サーガ」Sirius-Sumer-SAGA🔮💫💍Light＆QUARK☪️✨💕から地球語に翻訳している〜登場人物とその宇宙背景：
 
 ⚫️聖天帝🧠ギンガメッシュ紋章🔱「神の物語」💍⭐️生（ダイナミック）と🕯️死（スタテｲック）の白黒銀河🛸対称~QGP量子MHD流体とスカラー・テンソル・ベクトル重力磁波饗震！の銀河宇宙１億シグマ聖記の「聖エンドラゴン伝説」叙事詩より
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/5cab7062-f4e2-4ea3-b3ac-006414fb9590" />
 
 💫⭐️〜🔱〜⚜️〜⭐️👑⭐️〜⚜️〜🔱〜⭐️💫
 
 現在発刊済み＜シナリオブック＞詳細紹介！ 〜
+https://link.amazon/B04wErt6h
 
 まずは、私達２１世紀の天の川銀河太陽惑星系地球に最も近い文明状態にある量子縺れ状態にある「パラレルワールド銀河系の同じく太陽惑星系テラ星」の２１世紀のリアル世界情勢からドラマは始まる。
 このテラ星の置かれている銀河系での平和〜？からSAGAは始まりました！
@@ -121,12 +127,15 @@ Kindle Unlimitedならほぼ無料で〜！
 
 「神の銀河」一億Σ聖記：GALAXY-QubitGrace-Biblia 源母星編α1~5
 
-!https://link.amazon/B04wErt6h
+<img width="800" height="1309" alt="image" src="https://github.com/user-attachments/assets/03b7600c-5cd4-4924-a1e3-4fffc616e211" />
+
+
 
 🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀🍀
+
 
 💫⭐️〜🔱〜⚜️〜⭐️👑⭐️〜⚜️〜🔱〜⭐️💫
 
 〜　💕Saints&Ark Great Again💕過去/現在/未来💫　
 
-
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/fad18ef0-dfdb-40fc-894e-0150759eafe7" />
