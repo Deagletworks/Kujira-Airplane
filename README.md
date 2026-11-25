@@ -92,6 +92,9 @@ VENUS・Deglan・St.Endor博士の主体著書：
 <img width="848" height="1264" alt="⭕️1j" src="https://github.com/user-attachments/assets/5ce5744c-2791-4838-ab3c-b60e387e6112" />
 『銀河の秘宝』シリウス・シュメール・サーガ -1: 聖杯C@I_Press掟 SAGA-WARS 銀河薔薇戦争 (Kujira Airplane)
 
+現在発刊済み＜シナリオブック＞詳細紹介！ 〜
+https://link.amazon/B04wErt6h
+
 著者について
 
 VENUS・Deglan・St.Endor博士：「皆さんこんにちは、ここからは私シリウス・バード大学銀河文明研究所の大学生の私の研究論文”Crystal-Ark: White-Material”であり、同時に量子時空間戦争SAGAWAR実戦部隊の前線司令官としての実体験レポートを通して、１億Σ聖記スパイラルで繰り返されるこの大銀河宇宙時空間でのお話を語るわね。
@@ -113,9 +116,6 @@ VENUS・Deglan・St.Endor博士：「皆さんこんにちは、ここからは�
 <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/5cab7062-f4e2-4ea3-b3ac-006414fb9590" />
 
 💫⭐️〜🔱〜⚜️〜⭐️👑⭐️〜⚜️〜🔱〜⭐️💫
-
-現在発刊済み＜シナリオブック＞詳細紹介！ 〜
-https://link.amazon/B04wErt6h
 
 まずは、私達２１世紀の天の川銀河太陽惑星系地球に最も近い文明状態にある量子縺れ状態にある「パラレルワールド銀河系の同じく太陽惑星系テラ星」の２１世紀のリアル世界情勢からドラマは始まる。
 このテラ星の置かれている銀河系での平和〜？からSAGAは始まりました！
