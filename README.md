@@ -106,6 +106,9 @@ VENUS・Deglan・St.Endor博士の主体著書：
 現在発刊済み＜シナリオブック＞詳細紹介！ 〜
 https://link.amazon/B04wErt6h
 
+<img width="1408" height="768" alt="Gemini_Generated_Image_q66ostq66ostq66o" src="https://github.com/user-attachments/assets/4ade5708-0b1a-4ffe-afff-8636387afd9b" />
+
+
 著者について
 
 VENUS・Deglan・St.Endor博士：「皆さんこんにちは、ここからは私シリウス・バード大学銀河文明研究所の大学生の私の研究論文”Crystal-Ark: White-Material”であり、同時に量子時空間戦争SAGAWAR実戦部隊の前線司令官としての実体験レポートを通して、１億Σ聖記スパイラルで繰り返されるこの大銀河宇宙時空間でのお話を語るわね。
